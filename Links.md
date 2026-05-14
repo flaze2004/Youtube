@@ -2,6 +2,16 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 21:00 IR
+- 🎬 (Part) [Highlights__G2_Esports_vs._Virtus.Pro_-_BLAST_R6_Salt_Lake_City___Phase_2_-_Day_3_part_000.mp4](https://github.com/flaze2004/Youtube/raw/main/dl/Highlights__G2_Esports_vs._Virtus.Pro_-_BLAST_R6_Salt_Lake_City___Phase_2_-_Day_3_part_000.mp4) `39.1MB`
+
+- 🎬 (Part) [Highlights__G2_Esports_vs._Virtus.Pro_-_BLAST_R6_Salt_Lake_City___Phase_2_-_Day_3_part_001.mp4](https://github.com/flaze2004/Youtube/raw/main/dl/Highlights__G2_Esports_vs._Virtus.Pro_-_BLAST_R6_Salt_Lake_City___Phase_2_-_Day_3_part_001.mp4) `40.1MB`
+
+- 🎬 (Part) [Highlights__G2_Esports_vs._Virtus.Pro_-_BLAST_R6_Salt_Lake_City___Phase_2_-_Day_3_part_002.mp4](https://github.com/flaze2004/Youtube/raw/main/dl/Highlights__G2_Esports_vs._Virtus.Pro_-_BLAST_R6_Salt_Lake_City___Phase_2_-_Day_3_part_002.mp4) `16.8MB`
+
+---
+
+
 ### 📅 2026-05-14 20:33 IR
 - 🎬 (Part) [ENTERPRISE_vs._REBELLION_-_BLAST_R6_Salt_Lake_City_Major___Phase_2_-_Day_3_part_000.mp4](https://github.com/flaze2004/Youtube/raw/main/dl/ENTERPRISE_vs._REBELLION_-_BLAST_R6_Salt_Lake_City_Major___Phase_2_-_Day_3_part_000.mp4) `22.4MB`
 
